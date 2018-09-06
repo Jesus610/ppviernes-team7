@@ -37,6 +37,7 @@ y a tratar mejor a los demás.
 
 Creo en tí amigo: 
 Si no te avergüenzas de ser mi amigo 
-en las horas tristes y amargas.
-
+en las horas tristes y amargas siempre contaras conmigo
+verdadero amigo .
+c
 the end
